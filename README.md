@@ -36,7 +36,11 @@ When he attempts to practise vices
 The Quarry, fleeing from the outing,
   Sinks panting in the reeds and mud;
 And Hearkens to the distant shouting
-  That tells him they are out for blood.  
+  That tells him they are out for blood.
+
+The Tourist huddles in the station
+While slowly night gives way to dawn:
+He finds a certain fascination  
 
 The Zouave used to war and battle
 Would sooner take a life than not:
