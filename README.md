@@ -37,10 +37,20 @@ The Quarry, fleeing from the outing,
   Sinks panting in the reeds and mud;
 And Hearkens to the distant shouting
   That tells him they are out for blood.
-
+  
+The Rescurrections goes plying
+  Without ado his simple trade;
+Material is always dying
+  And got with nothing but a spade.
+  
+  
 The Tourist huddles in the station
 While slowly night gives way to dawn:
 He finds a certain fascination  
+  That tells him they are out for blood.  
+  
+
+
 
 The Zouave used to war and battle
 Would sooner take a life than not:
