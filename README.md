@@ -14,3 +14,24 @@ The Magnate waits upon the pavement
 For his enormous limousine
 And ponders further child-enslavement
 And other projects still more mean. 
+
+The Nun is fearfully bedevilled:
+She runs about and moans and shrieks;
+Her flesh is bruised, her clothes dishevelled:
+She's been like this for weeks and weeks.  
+
+The Proctor buys a pupil ices,
+  And hopes the boy will not resist
+When he attempts to practise vices
+  Few people even know exist.  
+
+The Quarry, fleeing from the outing,
+  Sinks panting in the reeds and mud;
+And Hearkens to the distant shouting
+  That tells him they are out for blood.  
+
+The Zouave used to war and battle
+Would sooner take a life than not:
+It scarcely has begun to prattle
+When he impales the hapless tot.
+
